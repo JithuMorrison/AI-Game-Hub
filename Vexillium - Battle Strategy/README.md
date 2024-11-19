@@ -1,4 +1,4 @@
-# Vexillium  - A Battle Strategy Game
+# Vexillium  - A Battle Strategy Game ⚔️🛡️🔥
 
 <br>
 
